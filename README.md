@@ -1,1 +1,0 @@
-# fudanagashi_part_2
